@@ -2,7 +2,7 @@
 
 最新地址：[guolicheng.cc](https://guolicheng.cc/index.php#/register?code=GWPpEyyx)
 
-## 果粒橙简介
+## 简介
 
 果粒橙机场创建于2022年。使用Trojan&&Vmess协议，解锁Netflix&&BiliBili&&Disney等流媒体。
 
@@ -14,7 +14,7 @@
 
 优惠券:Double eleven
 
-## 果粒橙价格
+## 价格
 
 
 
